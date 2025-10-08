@@ -1,1 +1,1 @@
-# bymalicolak-star.github.io
+Geliştirici sayfama hoş geldiniz.
